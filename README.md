@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with more ARMYs to help with their archiving needs.
 - 📫 How to reach me: redsonja.belit@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I like to dance.
+- ⚡ Fun fact: I write smutty fanfiction, lol.
 
 <!---
 AudreyG875/AudreyG875 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
